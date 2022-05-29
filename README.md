@@ -1,1 +1,1 @@
-# Projekt_ko-cowy_
+# Projekt_koncowy_
